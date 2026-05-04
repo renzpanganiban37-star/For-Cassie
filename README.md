@@ -1,2 +1,2 @@
 # For-Adi
-For someone so special to me
+My Gorgeous Blessing
